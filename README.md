@@ -1,1 +1,0 @@
-# shripad-joshi.github.io
